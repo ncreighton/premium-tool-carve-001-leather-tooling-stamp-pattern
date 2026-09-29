@@ -1,0 +1,2 @@
+# premium-tool-carve-001-leather-tooling-stamp-pattern
+Stop digging through scattered photos, faded paper notes, and endless browser tabs to find the right stamp pattern. Your next leather project deserves a cleaner system.  The Leather Tooling Stamp Pattern Design Library transforms your chaotic collection into a searchable, structured Notion database. No more wasted time hunting for that specific bas
